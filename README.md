@@ -1,4 +1,4 @@
-👋 Hi, I’m @judoseedsky
+👋 Hi, I’m Judo
 
 👀 I’m currently interested in web3 
 
